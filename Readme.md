@@ -9,4 +9,4 @@
 - You cannot control everything that happens to you, but control what you do about it.
 
 ### Begin with end in mind
-- 
+- All things are created twice. There's a mental or first creation, and a physical or second ceartion, to all things.
