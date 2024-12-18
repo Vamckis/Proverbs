@@ -1,3 +1,4 @@
+## Private Victory
 ### Be Proactive
 - Love, the feeling, is the fruit of Love, the verb. So love her, serve her, listen to her, empathize, appreciate, affirm her.
 - Love, the feeling, can be recaptured using Love, the verb
@@ -10,3 +11,14 @@
 
 ### Begin with end in mind
 - All things are created twice. There's a mental or first creation, and a physical or second ceartion, to all things.
+- Management is doing things right, Leadership is doing right things.
+- Success is not in having things, but having mastery, victory over self.
+- 
+
+Put first things first
+
+## Public Victory
+### Think win-win
+seek first to understand, then to be understood
+synergize
+sharpen the saw
